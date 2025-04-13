@@ -1,1 +1,2 @@
 # Industrial-Training-Saimirra-Innopharm-Pvt.-Ltd.
+-Completed an intensive training in pharmaceutical manufacturing and quality control at Sai Mirra Innopharm. Gained practical exposure in warehouse operations, batch manufacturing, QC and QA testing, documentation, and APQR development. Worked with HPLC, GC, FTIR, and participated in audit readiness and SOP compliance. Developed critical understanding of production workflows, packaging processes, and regulatory compliance across departments.
